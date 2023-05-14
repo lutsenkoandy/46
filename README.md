@@ -1,1 +1,1 @@
-(https://lutsenkoandy.github.io/46/)
+https://lutsenkoandy.github.io/46/
